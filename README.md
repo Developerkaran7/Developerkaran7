@@ -10,6 +10,6 @@
 🌱 Always learning and growing.  
 🤝 Open to collaboration and freelance projects.
 
-📫 Connect with me: https://www.linkedin.com/posts/karan-chandaliya-945633313_html-css-webdesign-activity-7325798039648964609-rL9s | [Portfolio Website](your-portfolio-url)
+📫 Connect with me: www.linkedin.com/in/karan-chandaliya-945633313 | [Portfolio Website](your-portfolio-url)
 
 > "Consistency beats talent." ✨
