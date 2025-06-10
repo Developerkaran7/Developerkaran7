@@ -10,6 +10,6 @@
 🌱 Always learning and growing.  
 🤝 Open to collaboration and freelance projects.
 
-📫 Connect with me: www.linkedin.com/in/karan-chandaliya-945633313 | [Portfolio Website](your-portfolio-url)
+📫 Connect with me: www.linkedin.com/in/karan-chandaliya-945633313 | [Portfolio Website] https://developerkaran7.github.io/Portfolio/
 
 > "Consistency beats talent." ✨
