@@ -1,4 +1,4 @@
-# Hi, I'm Karan Mahendra Chandaliya 👋
+# Hi, I'm Karan 👋
 
 🚀 Full Stack Web Developer | Passionate about building modern web applications.
 
